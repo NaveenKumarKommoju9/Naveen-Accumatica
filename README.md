@@ -1,0 +1,1 @@
+## Teardown of Marketplace offering in Accumatica
